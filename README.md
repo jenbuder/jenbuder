@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jenbuder
+- 👀 I’m interested quilting, and solving human problems
+- 🌱 I’m currently learning how to draw well
+- 💞️ I’m looking to collaborate on anything Talent related
+- 📫 Reach me on slack @jenbuder
